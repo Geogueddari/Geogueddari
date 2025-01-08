@@ -133,6 +133,6 @@ Feel free to explore my repositories or connect with me for collaborations and p
 
 - 📧 **Email**: abdeljabbarelgaddari7@gmail.com
 
-- 🔗 **LinkedIn**: Abdeljabbar Elgaddari(#)
+- 🔗 **LinkedIn**: [Abdeljabbar Elgaddari](#)
 
-- 🌐 **Watsapp**: 0614039267(#)
+- 🌐 **Watsapp**: [0614039267](#)
